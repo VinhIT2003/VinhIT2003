@@ -1,7 +1,7 @@
 
 ## 🌐Socials
- [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/https://www.facebook.com/VinhIt2003/)
- [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@https://l.facebook.com/l.php?u=https%3A%2F%2Fwww.tiktok.com%2F%40tranquangvinh739%3F_t%3DZS-8uMWb7IgP25%26_r%3D1%26fbclid%3DIwZXh0bgNhZW0CMTAAAR2WMnYzJmMMTMVtPPdrh7MLUTXH7F2c6bJdAD36tIXuHzNcd60qYl1wN_0_aem_NvS_BlmxW_luCrxW4R1iEg&h=AT1jZQ69dELzhd3IOUhSxOY4M_2pdCqinOL2qwhOLP1cAQPN5uPgDMhqQ13w2L3ecptzA1dnnDBUMgHf_QpzvgKqkgC9K_E5ZVtcMCkgF5kDRpz_FkAcRKLj9WUd_jpNNCAFmRZwl4vVBHr7HLFCXA) 
+ [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://www.facebook.com/VinhIt2003/)
+ [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://l.facebook.com/l.php?u=https%3A%2F%2Fwww.tiktok.com%2F%40tranquangvinh739%3F_t%3DZS-8uMWb7IgP25%26_r%3D1%26fbclid%3DIwZXh0bgNhZW0CMTAAAR2WMnYzJmMMTMVtPPdrh7MLUTXH7F2c6bJdAD36tIXuHzNcd60qYl1wN_0_aem_NvS_BlmxW_luCrxW4R1iEg&h=AT1jZQ69dELzhd3IOUhSxOY4M_2pdCqinOL2qwhOLP1cAQPN5uPgDMhqQ13w2L3ecptzA1dnnDBUMgHf_QpzvgKqkgC9K_E5ZVtcMCkgF5kDRpz_FkAcRKLj9WUd_jpNNCAFmRZwl4vVBHr7HLFCXA) 
  [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://www.youtube.com/@QuangVinhTran-ih5oz) 
 
 # 💻Skill Development
